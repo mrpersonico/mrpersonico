@@ -8,7 +8,7 @@
   - [💬 Chatea conmigo en WhatsApp](https://wa.me/56912345678)  
   - [🌐 Visita mi portafolio](https://cargocollective.com/mrpersonico)  
 - 😄 Pronombres: él / he  
-- ⚡ Fun fact: Tengo una gata llamada Atenea, y adoptarla fue una de las mejores decisiones de mi vida.  
+- ⚡ Fun fact: ⚡ 100% impulsado por café 
 
 <!---
 mrpersonico/mrpersonico is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
